@@ -1,2 +1,2 @@
-# Bar-Mitzva-Count-Sefira-With-Bracha
-Bar-Mitzva-Count-Sefira-With-Bracha
+# Does-a-katan-shehigdil-during-Sefira-count-with-a-bracha
+Does-a-katan-shehigdil-during-Sefira-count-with-a-bracha
